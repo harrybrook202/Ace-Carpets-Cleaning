@@ -1,1 +1,3 @@
 # Ace-Carpets-Cleaning
+
+Ace Carpet Cleaning is a professional carpet cleaning company committed to providing high-quality cleaning services to both residential and commercial clients. With years of experience in the industry, Ace Carpet Cleaning uses top-of-the-line equipment and eco-friendly cleaning solutions to guarantee customer satisfaction. Their team of trained experts ensures that every carpet is thoroughly cleaned and the customer's expectations are exceeded. [Ace Carpet Cleaning](https://acecarpetcleaningdfw.com/) strives to provide exceptional service, competitive rates, and flexible scheduling to accommodate the needs of their customers.
